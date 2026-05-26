@@ -9,3 +9,5 @@ Currently co-founding a regulated commodities trading platform in Dubai. Previou
 Building fintech and digital asset tools in public — see my projects below or visit my portfolio at [nicholas-esterhuizen.github.io](https://nicholas-esterhuizen.github.io).
 
 📍 Dubai, UAE &nbsp;·&nbsp; 🟢 Open to PM opportunities
+
+[LinkedIn →](https://www.linkedin.com/in/your-linkedin-handle)
